@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @samanglo
+👋 Hi, I’m @samanglo
 
 It's my business account for [Anglo American]([url](https://www.angloamerican.com/))
 
